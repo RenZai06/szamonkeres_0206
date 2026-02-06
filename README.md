@@ -1,2 +1,1 @@
-# szamonkeres_0206
-## Hermanutz Balázs
+# Hermanutz Balázs
